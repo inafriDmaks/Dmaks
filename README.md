@@ -1,1 +1,1 @@
-# Bukan Tanpa Alasan Coding Menjadi Bersemangat
+# Bukan Tanpa Alasan Dia Menjadi Sebuah Semangat
